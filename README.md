@@ -1,1 +1,1 @@
-# what-i-have-been-studying
+# major study
